@@ -7,7 +7,8 @@ tags:
 
 ## Et poposcerat rursus ad magnus premit
 
-Lorem markdownum gradus, qui largis, nec pater pleno: fatum. Adspexit cursus
+I'm not creative enough to think of something new to put here.
+
 cur, aut in adhuc crimina **habebat**: pro.
 
 - Et ducimus
